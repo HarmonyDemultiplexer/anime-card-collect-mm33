@@ -1,4 +1,4 @@
-
+Experience anime card collection like never before with anime card collection secret Script, the #1 Script. Includes god mode and anti-ban for
 
 
 
